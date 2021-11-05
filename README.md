@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @DilukshanG
 - 👀 I’m interested in reading and art
 - 🌱 I’m currently learning Advance Theology
-- 📫 How to reach me via mail
+- 📫 You can reach me via mail
 - 📫 My email ID is - seven777@me.com 
 - 
 <!---
